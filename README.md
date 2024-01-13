@@ -1,3 +1,2 @@
-Je suis développeur web en recherche d'alternance !
-Actuellement je perfectionne mon Javascript et je travail sur des projets perso !
+2 ans d’expérience entant que développeur. A travaillé chez l’USEP 13 et Butterfly Job.
 
